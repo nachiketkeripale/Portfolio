@@ -1,3 +1,3 @@
-# THANK YOU FOR VISITING TO MY PORTFOLIO  
+# THANK YOU FOR VISITING TO MY GITHUB PORTFOLIO SECTION!  
 
-## Please visit to my Portfolio. Click here [link.](https://nachiketkeripale.netlify.app/)
+## Please visit to my Portfolio website. Click here [link.](https://nachiketkeripale.netlify.app/)
